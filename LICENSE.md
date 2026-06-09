@@ -1,4 +1,4 @@
-# 
+# Experience be a lucky block like never before with advanced be a lucky block Scripts, the #1 Script. Includes esp and silent aim for unbeatable
 
 
 
